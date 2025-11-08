@@ -12,6 +12,34 @@ Current Gatekeeper: Payback/Two Time
 ![1b1a39eb512da60c6f18f915616e19d4](https://github.com/user-attachments/assets/a7f08628-6741-4bd0-9cac-d9e657558d95)
 
 
+We are currently undiagnosed, however we are planning on getting tested at the very least. Please keep in mind that many systems can't get a diagnosis for a variety of reasons, we don't know how long it will take for us to get diagnosed.
+
+As a collective; please use They/Grave/It pronouns for us as a whole.
+
+we are bodily a 15 year old in which our birthday is October 13th.
+
+Current diagnosed conditions; ADHD, Anxiety, and Depression.
+
+We are a mainly English individual, we know little things in other languages.
+
+
+Comfort kins (in general for our system);
+
+•Dust!Sans from Dusttale
+
+•Horror!Sans from Horrortale (We don't support the creator)
+
+•Lust!Sans from Underlust (We don't support the creator)
+
+•Reaper!Sans from Reapertale (We don't support the creator)
+
+•Discord from MLP
+
+•Eternal Sugar Cookie from CRK
+
+•Sun & Moon from FNAF
+
+
 General DNI list;
 
 • Pro/Conshippers (We don't like either of you. We are talking about the proshippers who allow Conshipping, light proshippers are fine ig but absolutely kms at even typing this. ~Lovesick)
