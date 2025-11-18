@@ -1,5 +1,7 @@
 Helllooo!! Welcome to our page, we go by the Graveyard System but many call us Eternal for short/as a collective.
 
+<img width="1001" height="177" alt="1000002682" src="https://github.com/user-attachments/assets/e67e5539-ad40-4456-aa76-ee66e81b3416" />
+
 We are a suspected dissociative disorder having individual (we don't kw if we have OSDD or DID, we just said UDD cuz it's more acceptable for our terms.)
 
 Current Host: Flit/Uzza/Blackwidow
@@ -18,6 +20,8 @@ We are a mainly English individual, we know little things in other languages.
 
 We switch between We/Us and I/Me when addressing ourselves.
 
+<img width="640" height="67" alt="1000002683" src="https://github.com/user-attachments/assets/d57f58ea-609b-44c0-b781-f40f4c181844" />
+
 Comfort kins (in general for our system);
 
 •Dust!Sans from Dusttale
@@ -33,6 +37,8 @@ Comfort kins (in general for our system);
 •Eternal Sugar Cookie from CRK
 
 •Sun & Moon from FNAF
+
+<img width="3000" height="360" alt="1000002684" src="https://github.com/user-attachments/assets/80016e6e-81fc-46d8-ad64-664cc9100a72" />
 
 General DNI list;
 
