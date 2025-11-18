@@ -1,31 +1,22 @@
-Helllooo!! Welcome to our GitHub page, we go by the Graveyard System but many call us Eternal for short.
-We are a suspected dissociative disorder having individual (we don't know if we have OSDD or DID, so we just say we have UDD)
+Helllooo!! Welcome to our page, we go by the Graveyard System but many call us Eternal for short/as a collective.
 
+We are a suspected dissociative disorder having individual (we don't kw if we have OSDD or DID, we just said UDD cuz it's more acceptable for our terms.)
 
 Current Host: Flit/Uzza/Blackwidow
 
 Current Gatekeeper: Payback/Two Time
 
-
-![936f915d1d19821e1fe717ab786684a3](https://github.com/user-attachments/assets/cdc8a976-9eb2-44db-aa98-2cd6f935131b)
-![3b7e42cb42cf39f26567d4ce15063860](https://github.com/user-attachments/assets/94f38ba0-b3ad-4bae-acd7-774e51ff39c3)
-![1b1a39eb512da60c6f18f915616e19d4](https://github.com/user-attachments/assets/a7f08628-6741-4bd0-9cac-d9e657558d95)
-![de66decb79ba4a8cb169c1d030e9a99b~2](https://github.com/user-attachments/assets/736b6824-7ec5-4cc5-92d5-8fc9863230f1)
-![af9c10a722487650448137cf329c8801~2](https://github.com/user-attachments/assets/1651fc9b-5552-49de-9043-b51ad0d59a2f)
-![59c2a85af2378fe99e0cad4802c63b09~2](https://github.com/user-attachments/assets/c1c6f0ec-ad31-4fd4-a243-c01df97cf492)
-![3250aff919828d432307fb2ccbeb0cce~2](https://github.com/user-attachments/assets/1147d24e-784d-420c-9bbf-6992b58b0d0f)
-
-
 We are currently undiagnosed, however we are planning on getting tested at the very least. Please keep in mind that many systems can't get a diagnosis for a variety of reasons, we don't know how long it will take for us to get diagnosed.
 
-As a collective; please use They/Grave/It pronouns for us as a whole.
+As a collective; please use They/Them pronouns for us as a whole.
 
-Our birthday is October 13th.
+Our birthday is October 13th. We are a Minor.
 
 Current diagnosed conditions; ADHD, Anxiety, and Depression.
 
 We are a mainly English individual, we know little things in other languages.
 
+We switch between We/Us and I/Me when addressing ourselves.
 
 Comfort kins (in general for our system);
 
@@ -42,7 +33,6 @@ Comfort kins (in general for our system);
 •Eternal Sugar Cookie from CRK
 
 •Sun & Moon from FNAF
-
 
 General DNI list;
 
@@ -68,11 +58,11 @@ General DNI list;
 
 •NSFW Littlespaces & Petspaces
 
-•Fake claimers
+• Fake claimers
 
 General INT list:
 
-•DID & OSDD Systems
+•DID, UDD & OSDD Systems
 
 •Furries
 
@@ -85,6 +75,15 @@ General INT list:
 •Documentary watchers
 
 •We don't know what else so etc
+
+
+![936f915d1d19821e1fe717ab786684a3](https://github.com/user-attachments/assets/cdc8a976-9eb2-44db-aa98-2cd6f935131b)
+![3b7e42cb42cf39f26567d4ce15063860](https://github.com/user-attachments/assets/94f38ba0-b3ad-4bae-acd7-774e51ff39c3)
+![1b1a39eb512da60c6f18f915616e19d4](https://github.com/user-attachments/assets/a7f08628-6741-4bd0-9cac-d9e657558d95)
+![de66decb79ba4a8cb169c1d030e9a99b~2](https://github.com/user-attachments/assets/736b6824-7ec5-4cc5-92d5-8fc9863230f1)
+![af9c10a722487650448137cf329c8801~2](https://github.com/user-attachments/assets/1651fc9b-5552-49de-9043-b51ad0d59a2f)
+![59c2a85af2378fe99e0cad4802c63b09~2](https://github.com/user-attachments/assets/c1c6f0ec-ad31-4fd4-a243-c01df97cf492)
+![3250aff919828d432307fb2ccbeb0cce~2](https://github.com/user-attachments/assets/1147d24e-784d-420c-9bbf-6992b58b0d0f)
 
 
 Publically available to be known;
