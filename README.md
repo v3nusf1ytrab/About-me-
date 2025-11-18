@@ -1,5 +1,5 @@
 Helllooo!! Welcome to our GitHub page, we go by the Graveyard System but many call us Eternal for short.
-We are a suspected dissociative disorder having individual (we don't know if we have OSDD or DID, our personal research goes towards most likely OSDD-1b.)
+We are a suspected dissociative disorder having individual (we don't know if we have OSDD or DID, so we just say we have UDD)
 
 
 Current Host: Flit/Uzza/Blackwidow
@@ -64,6 +64,8 @@ General DNI list;
 
 •NSFW Littlespaces & Petspaces
 
+•Fake claimers
+
 General INT list:
 
 •DID & OSDD Systems
@@ -79,3 +81,15 @@ General INT list:
 •Documentary watchers
 
 •We don't know what else so etc
+
+
+Publically available to be known;
+![Screenshot_20251118-070058~2](https://github.com/user-attachments/assets/95c17325-5e85-4047-9801-36abc9625742)
+![Screenshot_20251118-070107~2](https://github.com/user-attachments/assets/81936eda-78b5-4649-a1f7-8fcd74263e3f)
+![Screenshot_20251118-070121~2](https://github.com/user-attachments/assets/4b957ab7-e56d-4932-8f25-425d15511511)
+![Screenshot_20251118-070126~2](https://github.com/user-attachments/assets/be28719b-158d-4c0a-989a-aaaf91b198b0)
+![Screenshot_20251118-070131~2](https://github.com/user-attachments/assets/da04dcb9-9aa1-423f-9ccf-133782ec6bf7)
+![Screenshot_20251118-070144~2](https://github.com/user-attachments/assets/de80c17f-b2f2-4669-b5de-93e9bbe0b5fa)
+![Screenshot_20251118-070159~2](https://github.com/user-attachments/assets/c620ad1b-eb85-42f0-941e-498c0f4a0e41)
+![Screenshot_20251118-070205~2](https://github.com/user-attachments/assets/a1932d5c-d360-47d5-8f06-7d44d7b7c9a9)
+![Screenshot_20251118-070210~2](https://github.com/user-attachments/assets/3830f3a7-c066-4a0f-918a-99ac034a2ee1)
