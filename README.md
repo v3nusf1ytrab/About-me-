@@ -1,47 +1,45 @@
-Helllooo!! Welcome to our page, we go by the Graveyard System but many call us Eternal for short/as a collective.
+Welcome to the Graveyard System page! Before interacting with us, it's best suggest to go over things on here, on our strawpage or on our Patreon. Let's go!
+
 
 <img width="1001" height="177" alt="1000002682" src="https://github.com/user-attachments/assets/e67e5539-ad40-4456-aa76-ee66e81b3416" />
 
-We are a suspected dissociative disorder having individual (we don't kwow if we have OSDD or DID, we just said UDD cuz it's more acceptable for our terms.)
 
-Current Host: Flit/Uzza/Blackwidow
+》 First of all, we are a suspected dissociative disorder having individual (simplified wording: We suspected we have a dissociative disorder)
 
-Current Gatekeeper: Payback/Two Time
+We are fine with giving out our status on getting diagnosed; which we are currently in testing.
 
-We are currently undiagnosed, however we are planning on getting tested at the very least. Please keep in mind that many systems can't get a diagnosis for a variety of reasons, we don't know how long it will take for us to get diagnosed.
+[To add here, we are traumagentic and because we are comfortable with this at least being known; we have 20+ in our system]
 
-As a collective; please use They/Them pronouns for us as a whole.
+》 "Can I ask who's fronting?" While this can be 'disrespectful' for some systems, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
 
-Our birthday is October 13th. We are a Minor.
+》 "What do I call you when talking about all the alters as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' to address us as a collective.
 
-Current diagnosed conditions; ADHD, Anxiety, and Depression.
+》 "What pronouns do I use for yall as a collective?" When it comes to as a collective, we prefer genderneutrul pronouns such as They/Them. However, our pronouns in general change depending on the alter fronting.
 
-We are a mainly English individual, we know little things in other languages.
+》 "What are you currently diagnosed with?" We are currently diagnosed with conditions; ADHD, anxiety and depression. Which we are getting treated for such, of course.
 
-We switch between We/Us and I/Me when addressing ourselves.
+》 We are a minor. Our birthday is October 13th. Its kinda funny that many of us love Halloween, huh?
 
-Honestly, just come up to us whenever cuz we all are socially awkward in our own little ways tbh.
+》 We are a mainly English user but some of us know little things in other languages.
 
+》 "How should I come up to you?" Bacially nothing much to say here but it mostly depends on the alter on how effective the interaction is. Just be very mindful and in general treat us like a being. We all are socially awkward in our own little ways btw.
 
-<img width="640" height="67" alt="1000002683" src="https://github.com/user-attachments/assets/d57f58ea-609b-44c0-b781-f40f4c181844" />
+》 We switch between We/Us and I/Me when addressing ourselves.
 
-Comfort kins (in general for our system);
+》 Really important things about certain alters/groups of alters!
 
-•Dust!Sans from Dusttale
+1) We have a variety of "emotion feeling" alters. Aka some alters just feel little to no emotions!
 
-•Horror!Sans from Horrortale (We don't support the creator)
+2) we have a variety of comfort towards touching; both digitally and irl. We DON'T care if you don't care, respect this boundary!!
 
-•Lust!Sans from Underlust (We don't support the creator)
+3) Some of us have typing quirks, I don't think this needs explanation.
 
-•Reaper!Sans from Reapertale (We don't support the creator)
+4) Some of us don't really have censors, please tell us when to cut it out! :3
+We are a suspected dissociative disorder 
 
-•Discord from MLP
-
-•Eternal Sugar Cookie from CRK
-
-•Sun & Moon from FNAF
 
 <img width="3000" height="360" alt="1000002684" src="https://github.com/user-attachments/assets/80016e6e-81fc-46d8-ad64-664cc9100a72" />
+
 
 General DNI list;
 
