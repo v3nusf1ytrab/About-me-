@@ -5,9 +5,7 @@ Welcome to the Graveyard System page! Before interacting with us, it's best sugg
 
 
 》 First of all, we are a suspected dissociative disorder having individual (simplified wording: We suspected we have a dissociative disorder)
-
 We are fine with giving out our status on getting diagnosed; which we are currently in testing.
-
 [To add here, we are traumagentic and because we are comfortable with this at least being known; we have 20+ in our system]
 
 》 "Can I ask who's fronting?" While this can be 'disrespectful' for some systems, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
@@ -98,7 +96,7 @@ Publically available to be known;
 ![Screenshot_20251118-070107~2](https://github.com/user-attachments/assets/81936eda-78b5-4649-a1f7-8fcd74263e3f)
 ![Screenshot_20251118-070121~2](https://github.com/user-attachments/assets/4b957ab7-e56d-4932-8f25-425d15511511)
 ![Screenshot_20251118-070126~2](https://github.com/user-attachments/assets/be28719b-158d-4c0a-989a-aaaf91b198b0)
-![Screenshot_20251118-070131~2](https://github.com/user-attachments/assets/da04dcb9-9aa1-423f-9ccf-133782ec6bf7)
+![Screenshot_20251121-021550~2](https://github.com/user-attachments/assets/da20a241-4734-4e97-b3bb-7c8604704805)
 ![Screenshot_20251118-070144~2](https://github.com/user-attachments/assets/de80c17f-b2f2-4669-b5de-93e9bbe0b5fa)
 ![Screenshot_20251118-070159~2](https://github.com/user-attachments/assets/c620ad1b-eb85-42f0-941e-498c0f4a0e41)
 ![Screenshot_20251118-070205~2](https://github.com/user-attachments/assets/a1932d5c-d360-47d5-8f06-7d44d7b7c9a9)
