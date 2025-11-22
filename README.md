@@ -33,7 +33,6 @@ We are fine with giving out our status on getting diagnosed; which we are curren
 3) Some of us have typing quirks, I don't think this needs explanation.
 
 4) Some of us don't really have censors, please tell us when to cut it out! :3
-We are a suspected dissociative disorder 
 
 
 <img width="3000" height="360" alt="1000002684" src="https://github.com/user-attachments/assets/80016e6e-81fc-46d8-ad64-664cc9100a72" />
