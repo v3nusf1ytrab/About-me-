@@ -7,6 +7,10 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 》 First of all, we are a diagnosed DID system.
 [To add here because we are comfortable with this at least being known; we have 20+ in our system]
 
+》We are currently taken by our partner system; The Hippocampus!
+
+》As a collective — we identify as Genderfluid, Abrosexual, and Polyamorous.
+
 》 "Can I ask who's fronting?" While this can be 'disrespectful' for some systems, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
 
 》 "What do I call you when talking about all the alters as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' to address us as a collective.
@@ -32,7 +36,6 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 3) Some of us have typing quirks, I don't think this needs explanation.
 
 4) Some of us don't really have censors, please tell us when to cut it out! :3
-
 
 <img width="3000" height="360" alt="1000002684" src="https://github.com/user-attachments/assets/80016e6e-81fc-46d8-ad64-664cc9100a72" />
 
@@ -77,25 +80,4 @@ General INT list:
 
 •Documentary watchers
 
-•We don't know what else so etc
-
-
-![936f915d1d19821e1fe717ab786684a3](https://github.com/user-attachments/assets/cdc8a976-9eb2-44db-aa98-2cd6f935131b)
-![3b7e42cb42cf39f26567d4ce15063860](https://github.com/user-attachments/assets/94f38ba0-b3ad-4bae-acd7-774e51ff39c3)
-![1b1a39eb512da60c6f18f915616e19d4](https://github.com/user-attachments/assets/a7f08628-6741-4bd0-9cac-d9e657558d95)
-![de66decb79ba4a8cb169c1d030e9a99b~2](https://github.com/user-attachments/assets/736b6824-7ec5-4cc5-92d5-8fc9863230f1)
-![af9c10a722487650448137cf329c8801~2](https://github.com/user-attachments/assets/1651fc9b-5552-49de-9043-b51ad0d59a2f)
-![59c2a85af2378fe99e0cad4802c63b09~2](https://github.com/user-attachments/assets/c1c6f0ec-ad31-4fd4-a243-c01df97cf492)
-![3250aff919828d432307fb2ccbeb0cce~2](https://github.com/user-attachments/assets/1147d24e-784d-420c-9bbf-6992b58b0d0f)
-
-
-Publically available to be known;
-![Screenshot_20251118-070058~2](https://github.com/user-attachments/assets/95c17325-5e85-4047-9801-36abc9625742)
-![Screenshot_20251118-070107~2](https://github.com/user-attachments/assets/81936eda-78b5-4649-a1f7-8fcd74263e3f)
-![Screenshot_20251118-070121~2](https://github.com/user-attachments/assets/4b957ab7-e56d-4932-8f25-425d15511511)
-![Screenshot_20251118-070126~2](https://github.com/user-attachments/assets/be28719b-158d-4c0a-989a-aaaf91b198b0)
-![Screenshot_20251121-021550~2](https://github.com/user-attachments/assets/da20a241-4734-4e97-b3bb-7c8604704805)
-![Screenshot_20251118-070144~2](https://github.com/user-attachments/assets/de80c17f-b2f2-4669-b5de-93e9bbe0b5fa)
-![Screenshot_20251118-070159~2](https://github.com/user-attachments/assets/c620ad1b-eb85-42f0-941e-498c0f4a0e41)
-![Screenshot_20251118-070205~2](https://github.com/user-attachments/assets/a1932d5c-d360-47d5-8f06-7d44d7b7c9a9)
-![Screenshot_20251118-070210~2](https://github.com/user-attachments/assets/3830f3a7-c066-4a0f-918a-99ac034a2ee1)
+•We don't know what else so etc.
