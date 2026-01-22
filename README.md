@@ -5,7 +5,7 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 
 
 》 First of all, we are a diagnosed DID system.
-[To add here because we are comfortable with this at least being known; we have 20+ in our system]
+[To add here because we are comfortable with this at least being known; we have 30+ in our system]
 
 》We are currently taken by our partner system; The Hippocampus!
 
