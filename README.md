@@ -7,8 +7,6 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 》 First of all, we are a diagnosed DID system.
 [To add here because we are comfortable with this at least being known; we have 30+ in our system]
 
-》We are currently taken by our partner system; The Hippocampus!
-
 》As a collective — we identify as Genderfluid, Abrosexual, and Polyamorous.
 
 》 "Can I ask who's fronting?" While this can be 'disrespectful' for some systems, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
