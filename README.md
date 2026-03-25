@@ -40,21 +40,19 @@ Welcome to the Flytrap System page! Before interacting with us, it's best sugges
 
 General DNI list;
 
-• Pro/Conshippers (We don't like either of you. We are talking about the proshippers who allow Conshipping, light proshippers are fine ig but absolutely kms at even typing this. ~Lovesick)
+• Pro/DARKshippers (We don't liKE eIther of you. absolutely kms at even typing this. ~Lovesick)
 
-• Endo systems  (Respectfully, we don't want to be interact with by yall? We don't really respect some of you, we don't really care what you do but just don't get us involved. We are really confused with whole stuff about y'all. ~Flit)
+• Endo systems + Proendo (Respectfully, we don't want to be interact with by yall? We don't really respect some of you, we don't really care what you do but just don't get us involved. We are really confused with whole stuff about y'all. ~Flit)
 
-• Public Age & Pet players (This especially makes me uncomfortable, please don't come up to us!! Please keep your sexual activities to yourself and your partner(s) or at LEAST your frined group if they are comfortable with such, idk!! >n< ~The Lamb)
+• Public Age & Pet players (This especially makes me uncomfortable, please don't come up to us!! Please keep your sexual activities to yourself and your partner(s) or at LEAST your friend group if they are comfortable with such, idk!! >n< ~The Lamb)
 
-•Corrupted Nightmare kins/irls (this is mostly from Slasher and Jay, both of our Killer alters. Plus imagine kinning a Trump mf ahh; he's canonically a mass phobic - especially homophobic, transphobic and ableist as far as we have been told. ~Ziggy)
-
-•Anti-"woke" and anti-vax individuals (we. Don't. Like. You. People. We already have to deal with many. Piss off, respectfully. ~Ziggy)
+•Anti-"woke" and anti-vax individuals (we. Don't. Like. You. People. We already have to deal with many. Piss off, respectfully.  ~Ziggy)
 
 •Zoophiles, Zoosadists & Pedophiles (Do I really need to explain it for you? It's cuz it's fucking disgusting. Piss off, you babos. ~Coello)
 
 •Zoo/Predator supporters (self-explanatory. ~Coello)
 
-• Karma from Ponytown + toxic friends of such (Imagine telling US to kill ourselves while being close to/being an adult, you dumb fuck. You disgust me. Truly. ~Coello)
+• Karma from Ponytown + toxic friends of such (Imagine telling US to kill ourselves while being close to/being an adult, you dumb fuck. You disgust me. Truly. ~Coello [Added comment by Flit: Just cuz we thought a 10/11 yr old darkshipper could be rehabilitated, wow.])
 
 •any Racist, ABLEIST, and/or SEXIST individuals.
 
@@ -62,11 +60,9 @@ General DNI list;
 
 •NSFW Littlespaces & Petspaces
 
-• Fake claimers
-
 General INT list:
 
-•DID, UDD & OSDD Systems
+•DID, PDID, UDD & OSDD Systems
 
 •Furries
 
@@ -74,7 +70,7 @@ General INT list:
 
 •Murder Time trio Kins (I won't hesitate to adopt you, hehehehe ☆w☆ -Flit)
 
-•Shippers (as long as it doesn't cross into conshipping)
+•Shippers (as long as it doesn't cross into darkshipping)
 
 •Documentary watchers
 
