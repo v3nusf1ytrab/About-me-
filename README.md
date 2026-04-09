@@ -1,6 +1,24 @@
 Welcome to the Flytrap System page! Before interacting with us, it's best suggest to go over things on here or our straw․page! Also, do visit our pronouns․cc for information about certain alters! :)
 
-First of all, we are a diagnosed DID system with
+First of all, we are a diagnosed DID system with 40+ alters. We are an introject heavy system with mainly UTMV alters due to growing up mostly around the UTMV fandom.
+
+"Can I ask who's fronting/in main front?" While this can be 'disrespectful' for some systems, especially if they don't know you, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
+
+"What do I call you when talking about all the alters/the system as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' or 'Flytrap' to address us as a collective.
+
+As a collective — we identify as Genderfluid, Pansexual and Polyamorous. We are currently not dating anyone however.
+
+"What pronouns do I use for yall as a collective?" When it comes to as a collective, we prefer genderneutrul pronouns such as They/Them. However, our pronouns in general change depending on the alter(s) fronting.
+
+**We are a minor** and we were born in October. We are an US citizen. (unfortunately, fuck our country.)
+
+"What are you currently diagnosed with?" We are currently diagnosed with DID, ADHD, anxiety and depression. Along with such, we are planning to get diagnosed with — or at the very least tested for — Autism and Bipolar disorder.
+
+We are a mainly English user but some of us know little things in other languages — along with us trying to collectively learn German.
+
+We switch between singular and plural pronouns when addressing ourselves.
+
+"How should I come up to you?" Bacially nothing much to say here but it mostly depends on the alter(s) fronting on how effective the interaction is. Just be very mindful and, in general, treat us like a being. We are all socially awkward in our own little ways.
 
 
 General DNI list;
