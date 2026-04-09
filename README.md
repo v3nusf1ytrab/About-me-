@@ -1,8 +1,14 @@
 Welcome to the Flytrap System page! Before interacting with us, it's best suggest to go over things on here or our straw․page! Also, do visit our pronouns․cc for information about certain alters! :)
 
+<img width="769" height="85" alt="1000004025" src="https://github.com/user-attachments/assets/a1734e60-25ec-459a-892d-8208f229daf4" />
+
 First of all, we are a diagnosed DID system with 40+ alters. We are an introject heavy system with mainly UTMV alters due to growing up mostly around the UTMV fandom.
 
+<img width="500" height="39" alt="1000004024" src="https://github.com/user-attachments/assets/4abad658-b003-4298-932d-83b6ac560ba0" />
+
 "Can I ask who's fronting/in main front?" While this can be 'disrespectful' for some systems, especially if they don't know you, we are comfortable with such depending on the way you ask. Please do ask in a respectful manner and you will most likely not get ignored.
+
+<img width="1280" height="102" alt="1000004023" src="https://github.com/user-attachments/assets/8f19f2ae-e250-4a8e-9b3c-62a7d6e3cf95" />
 
 "What do I call you when talking about all the alters/the system as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' or 'Flytrap' to address us as a collective.
 
