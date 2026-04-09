@@ -12,11 +12,19 @@ First of all, we are a diagnosed DID system with 40+ alters. We are an introject
 
 "What do I call you when talking about all the alters/the system as a collective?" We don't really have a true name in mind but we have been allowing people to use the name 'Eternal' or 'Flytrap' to address us as a collective.
 
+![1000004022](https://github.com/user-attachments/assets/97d8cfaf-fcf2-4a0b-a034-dbad51de0501)
+
 As a collective — we identify as Genderfluid, Pansexual and Polyamorous. We are currently not dating anyone however.
+
+<img width="640" height="72" alt="1000004028" src="https://github.com/user-attachments/assets/c55f39ba-d04d-4fd4-b80c-cd0b15eb4e2d" />
 
 "What pronouns do I use for yall as a collective?" When it comes to as a collective, we prefer genderneutrul pronouns such as They/Them. However, our pronouns in general change depending on the alter(s) fronting.
 
+<img width="1280" height="128" alt="1000004026" src="https://github.com/user-attachments/assets/7213060e-9748-484e-ac54-b632e639f361" />
+
 **We are a minor** and we were born in October. We are an US citizen. (unfortunately, fuck our country.)
+
+<img width="640" height="72" alt="1000004027" src="https://github.com/user-attachments/assets/406b1bcc-5a8a-463a-99ad-2432a8956c75" />
 
 "What are you currently diagnosed with?" We are currently diagnosed with DID, ADHD, anxiety and depression. Along with such, we are planning to get diagnosed with — or at the very least tested for — Autism and Bipolar disorder.
 
