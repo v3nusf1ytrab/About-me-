@@ -18,6 +18,11 @@ We are a mainly English user but some of us know little things in other language
 
 We switch between singular and plural pronouns when addressing ourselves.
 
+We are a polytherian with Physical, Spiritual and Psychological theriotypes. The list below are our theriotypes along with if they are Physical, Spiritual or Psychological.
+Bat-earred Fox & Irish Goat — Physical.
+English Mastiff & Czechoslovakian Wolfdog — Psychological.
+Homing pigeon — Spiritual.
+
 "How should I come up to you?" Bacially nothing much to say here but it mostly depends on the alter(s) fronting on how effective the interaction is. Just be very mindful and, in general, treat us like a being. We are all socially awkward in our own little ways.
 
 
