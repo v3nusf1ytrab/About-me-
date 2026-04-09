@@ -29,16 +29,13 @@ As a collective — we identify as Genderfluid, Pansexual and Polyamorous. We ar
 "What are you currently diagnosed with?" We are currently diagnosed with DID, ADHD, anxiety and depression. Along with such, we are planning to get diagnosed with — or at the very least tested for — Autism and Bipolar disorder.
 
 <img width="640" height="40" alt="1000004029" src="https://github.com/user-attachments/assets/7c5f0bf4-593c-42b4-a6b4-d5a83782f943" />
-<img width="640" height="40" alt="1000004029" src="https://github.com/user-attachments/assets/7c5f0bf4-593c-42b4-a6b4-d5a83782f943" />
 
 We are a mainly English user but some of us know little things in other languages — along with us trying to collectively learn German.
 
 <img width="1280" height="180" alt="1000004032" src="https://github.com/user-attachments/assets/161ed2f4-ceee-483a-ad7f-02464f57fc5d" />
-<img width="1280" height="180" alt="1000004032" src="https://github.com/user-attachments/assets/161ed2f4-ceee-483a-ad7f-02464f57fc5d" />
 
 We switch between singular and plural pronouns when addressing ourselves.
 
-![1000004030](https://github.com/user-attachments/assets/c4100ebc-2720-4a40-98a4-d826f6049aec)
 ![1000004030](https://github.com/user-attachments/assets/c4100ebc-2720-4a40-98a4-d826f6049aec)
 
 We are a polytherian with Physical, Spiritual and Psychological theriotypes. The list below are our theriotypes along with if they are Physical, Spiritual or Psychological.
@@ -47,11 +44,9 @@ English Mastiff & Czechoslovakian Wolfdog — Psychological.
 Homing pigeon — Spiritual.
 
 <img width="1280" height="138" alt="1000004031" src="https://github.com/user-attachments/assets/8cba2897-fce2-4e05-ba09-95ad5f6ec7d4" />
-<img width="1280" height="138" alt="1000004031" src="https://github.com/user-attachments/assets/8cba2897-fce2-4e05-ba09-95ad5f6ec7d4" />
 
 "How should I come up to you?" Bacially nothing much to say here but it mostly depends on the alter(s) fronting on how effective the interaction is. Just be very mindful and, in general, treat us like a being. We are all socially awkward in our own little ways.
 
-<img width="640" height="64" alt="1000004033" src="https://github.com/user-attachments/assets/3e38bae1-2587-4904-ad45-ec3652d61562" />
 <img width="640" height="64" alt="1000004033" src="https://github.com/user-attachments/assets/3e38bae1-2587-4904-ad45-ec3652d61562" />
 
 
@@ -77,7 +72,6 @@ General DNI list;
 
 •NSFW Littlespaces & Petspaces
 
-<img width="1440" height="172" alt="1000004034" src="https://github.com/user-attachments/assets/7a61217a-f537-499a-aead-16e58f7fc9b7" />
 <img width="1440" height="172" alt="1000004034" src="https://github.com/user-attachments/assets/7a61217a-f537-499a-aead-16e58f7fc9b7" />
 
 General INT list:
